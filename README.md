@@ -8,4 +8,4 @@ Sammir Alejandro Bolaños Luna C.c:1080041258 Ingeniería de Sistemas
 
 Katherine Rodríguez Mejía C.c: 1001361246 Ingeniería de Sistemas
 
-Vídeo Youtube - Entrega 2 : 
+Vídeo Youtube - Entrega 2 : https://youtu.be/3LP7y7h5cfE
