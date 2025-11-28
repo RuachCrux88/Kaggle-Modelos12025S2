@@ -10,4 +10,4 @@ Katherine Rodríguez Mejía C.c: 1001361246 Ingeniería de Sistemas
 
 Vídeo Youtube - Entrega 2 : https://youtu.be/3LP7y7h5cfE
 
-Vídeo Youtube - Entrega 3 : 
+Vídeo Youtube - Entrega 3 : https://youtu.be/KFsZXy8wFc4
